@@ -45,10 +45,10 @@ Vibe: structured, slightly rugged, timeless. Amsterdam weather–ready.
 - **Store:** [DIV. Amsterdam](https://www.divamsterdam.com) — Haarlemmerstraat 71, Amsterdam
 - **Notes:** Clean Scandinavian workwear silhouette, durable cotton canvas.
 
-### Alpha Industries M-63 Field Jacket — Olive
-- **Price:** ~~€240~~ €130 (sale)
+### [Alpha Industries M-65 Heritage Field Jacket — Olive](https://www.divamsterdam.com/alpha-industries-m-65-heritage-field-jacket-olive.html)
+- **Price:** ~~€240~~ €120 (50% off)
 - **Store:** DIV. Amsterdam
-- **Notes:** Military field jacket, budget option. Check in-store for availability.
+- **Notes:** Military field jacket, budget option. Currently **out of stock** — worth checking back.
 
 ---
 
